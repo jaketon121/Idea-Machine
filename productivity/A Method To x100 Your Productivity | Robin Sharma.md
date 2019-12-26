@@ -14,3 +14,6 @@ Do your best work .
 
 Being world class at just a few things .
 
+
+Focus on one thing.
+
